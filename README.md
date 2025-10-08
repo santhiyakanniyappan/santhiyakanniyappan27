@@ -1,2 +1,2 @@
  
-<h1 align="center">Hi 👋, I'm Santhiya M</h1>
+<h1 align="center">Hi 👋, I'm Santhiya K</h1>
